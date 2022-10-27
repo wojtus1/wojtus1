@@ -1,4 +1,2 @@
 - 👋 Hi, I’m wojtus
 - ♿ I’m interested in league of legends 
-- 🌱 I’m currently learning python
-- 💜 I’m on discord Wojtus🌺#0001 
